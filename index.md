@@ -14,3 +14,5 @@ Meredith Grey sagte einmal:
 > But, sometimes, our expectations sell us short. 
 > Sometimes, the expected simply pales in comparison to the unexpected.
 > The unexpected ... is what changes our lives.
+
+<img src="https://i.pinimg.com/originals/ff/51/85/ff518522f4644e3caafec05c1db308e1.jpg"/>
